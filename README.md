@@ -1,2 +1,2 @@
 # I love gay sex
-[Gej seks](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fmario-sonic-kiss-make-out-make-love-gif-17857994&psig=AOvVaw3lUlWVCIv8cfEDcXClt0aJ&ust=1677883436010000&source=images&cd=vfe&ved=0CA8QjRxqFwoTCPC02IKpvv0CFQAAAAAdAAAAABAE)
+[Gej seks](https://p16-sign.tiktokcdn-us.com/tos-useast5-avt-0068-tx/1eb8d5cd4740a23e8feb46b55785d81b~c5_720x720.jpeg?x-expires=1677906000&x-signature=euXyDGfREojd%2Fp%2Fo1mLD03ESdqE%3D)
